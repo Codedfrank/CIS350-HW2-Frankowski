@@ -10,7 +10,6 @@
 * Not a lot of coding experience, but I do know python
 * I have taken 2 Python programming classes, with various small projects.
 
-![alt text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.reddit.com%2Fr%2FEDM%2Fcomments%2F1i38l2r%2Fww_oiia_oiia_spinning_cat%2F&psig=AOvVaw0dK_z5Nji8Ez0vY53fIURR&ust=1738331576716000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCMjJ5fzLnYsDFQAAAAAdAAAAABAE)
-
+![alt text](https://external-preview.redd.it/w-w-oiia-oiia-spinning-cat-v0-eMJFSBYmeAVxPVoWyPFdQPXJs0SOIRJFg2jQvQ_C8A8.jpg?auto=webp&s=12da86a597d777d448a48cceece96f2c10aeba7f)
 
 
